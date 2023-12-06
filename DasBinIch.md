@@ -1,0 +1,5 @@
+-
+- 👋 Hi, Ich bin @LuckyJojo11
+- 👀 Ich interressiere mich für alles, was mit Computern zusammenhängt.
+- 🌱 Momentan arbeite ich mit anderen Schülern an einem Monopoly - Projekt.
+- 
